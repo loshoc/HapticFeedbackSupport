@@ -1,4 +1,4 @@
-# Privacy Policy for HapticHub
+# Privacy Policy
 Last Updated: Aug.9 2024
 
 ## 1. Introduction
